@@ -15,3 +15,20 @@ https://docs.google.com/document/d/1VnmDwIWKnIpXf-XU_ck6x5tXw0LekjxH/edit
 https://www.youtube.com/watch?v=lsOOs5J8ycw
 
 https://www.youtube.com/watch?v=tNm_NNSB3_w
+
+https://github.com/doocs/leetcode/blob/main/solution/0000-0099/0001.Two%20Sum/README_EN.md
+
+https://www.youtube.com/watch?v=8qmYgyNmD-0
+
+Dande sir lms:
+https://lms.myjavalearningcenter.com/login
+
+https://lms.dandesacademy.com/login
+
+
+
+
+
+
+
+
